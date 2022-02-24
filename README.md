@@ -3,4 +3,4 @@ In my GitHub repositories you can find programs I have created to study the circ
 
 solhaug@uw.edu
 
-erik.solh@hotmail.com
+ersolhaug@gmail.com
